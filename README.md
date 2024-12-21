@@ -1,0 +1,2 @@
+# 2025-Forward-Speed-Detection-Speed-Bump-System-Boxarion-3D-models-and-Car-models
+This patent is made for vehicles its called Forward Speed Bump Detection System The device uses a patented process to extract the oil from the aloe vera plant and then converts it into a usable fuel source. This device detects pot holes and speed bumps up ahead of the driver with sensors and beeper notification sounds to notify driver of obstacles.
